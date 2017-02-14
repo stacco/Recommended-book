@@ -1,0 +1,2 @@
+# Recommended-book
+Hello friends, my name is Stacchini maurizio and I wanted to tell you that my personal website is online: www.recommendedbook.com and I would be honored if you would like to pay a visit to this "baby". We also accept criticism but constructive ones please I need to improve myself through. There are also digital products but would like to focus primarily on the articles and as you will see on the site menu there are more 'voices on the "Articles" menu. Thanks to all whatever happens and good vision
